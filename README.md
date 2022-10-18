@@ -1,2 +1,2 @@
 # Project-Fli-
-Making meet up seamless
+Building Great Spending Habits Seemless!
